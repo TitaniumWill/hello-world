@@ -1,4 +1,4 @@
 # hello-world
 Just another repository
-I like going fast and ballin'
+I like going to go FAST!!
 Change is imminent
